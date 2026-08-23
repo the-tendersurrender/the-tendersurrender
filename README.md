@@ -1,3 +1,1 @@
-HELLOO IM WORKING ON THIS! PLS BARE wITH ME
-
-<img src="https://cdn.phototourl.com/free/2…e04f9356b.png" width="300" height="300">
+readme I swear to god if you don’t let me add images to this
