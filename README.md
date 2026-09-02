@@ -11,3 +11,6 @@ wowwow thank you friends for helping me with this bullshittery wowow!1!!!!1!1!1!
 this site may change its theme VERY OFTEN,, I AM SORRY AAAA
 
 <img src=“https://cdn.phototourl.com/free/2026-08-23-dedb7394-0fe5-4633-b5a2-530917c40db2.gif” width=“180” height=“200”>
+
+(FOR PONYTOWN AND BASIC INTRO INFORMATION!!)
+(MOSTLY AFK OR OFFTAB ON PT, W2I APPRECIATED)
