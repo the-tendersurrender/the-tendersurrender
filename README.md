@@ -7,7 +7,7 @@
 
 <a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/3765/3765710xerg26m8r7.gif" width=500 height=30 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>glitter-graphics.com</a>
 
-wowwow thank you friends for helping me with this bullshittery wowow!1!!!!1!1!1!1! LMFAO
+wowwow thank you friends (mainly @watcherbittes, thank you for the layout help <3) for helping me with this bullshittery wowow!1!!!!1!1!1!1! LMFAO
 this site may change its theme VERY OFTEN,, I AM SORRY AAAA
 
 <img src=“https://cdn.phototourl.com/free/2026-08-23-dedb7394-0fe5-4633-b5a2-530917c40db2.gif” width=“180” height=“200”>
